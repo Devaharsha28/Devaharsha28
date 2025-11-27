@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm D. DevaHarsha</h1>
-<h3 align="center">From circuits to code — learning how systems think.</h3>
+<h3 align="center">Engineering Experiences.</h3>
 
 ### Contact me at : **contact@devaharsha.tech**
 
