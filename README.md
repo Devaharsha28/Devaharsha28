@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm D. DevaHarsha</h1>
 <h3 align="center">Engineering Experiences.</h3>
 
-### Contact me at : **contact@devaharsha.tech**
+### Contact me at : **harsha282009@gmail.com**
 
 
 <p align="left">
