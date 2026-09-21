@@ -1,6 +1,6 @@
 # Hi, I'm D. DevaHarsha 
 
-just another fellow termite.
+just another curious fellow .
 
 
 
