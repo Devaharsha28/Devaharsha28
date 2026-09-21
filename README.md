@@ -1,6 +1,6 @@
 # Hi, I'm D. DevaHarsha 
 
-just another curious fellow .
+just another curious hooman
 
 
 
