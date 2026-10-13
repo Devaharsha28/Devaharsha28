@@ -1,6 +1,6 @@
 # Hi, I'm D. DevaHarsha 
 
-just another curious hooman
+what i cannot create , i do not understand 
 
 
 
